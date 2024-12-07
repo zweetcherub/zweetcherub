@@ -5,15 +5,30 @@ pink,,, pink i love pinkkk PINKKK
 
 # 〃✦ ┆*Interests*
 
-୧‿̩͙ ˖︵ ꕀ⠀ ♱⠀ ꕀ ︵˖ ‿̩͙୨
+⠀୨୧⌢⌢⌢⌢୨꒰ 𐙚 ꒱୧⌢⌢⌢⌢୨୧ 
 
-**Shows/Films!** 𝜗𝜚 Good Omens, Coraline, Sherlock BBC, Hannibal, Doctor Who, Our Flag Means Death, Adventure Time, My Little Pony, SouthPark
+**bold** = hyperfixation
 
-**Games:D** 𝜗𝜚 St. Investigrave, Mortal Kombat, Resident Evil, Call of Duty (MW2 & MW3), The Last Of Us, Lollipop Chainsaw, Little Misfortune, Cookie Run Kingdom/Oven Break, Project Sekai/Colorful stage, Minecraft, Roblox
+*italic* = main
 
-**Music Artists** 𝜗𝜚 Abba, Mitski, The Smiths, Chappell Roan, Artic Monkeys, Cigarettes After Sex, The Crane Wives
+***bold and italic*** = hyperfixation and main
 
-plz use tonetags when talking w/ me especially if we just met../nf i dont pick up sarcasm/jokes easily!
+***GoodOmens***, *CherryCrush, Coraline,* ***Sherlock Holmes, Hannibal, Doctor Who, OFMD***, WWDITS, ALNST, **Studio Investigrave,** MortalKombat, ResidentEvil, Lollipop Chainsaw, PJSK, *Yaelokre*, ***Abba,*** Mitski, The Smiths, *Chappell Roan*, Artic Monkeys, Cigarettes After Sex, **The Crane Wives**
+
+# 〃✦ ┆*BYI!!*
+
+⠀୨୧⌢⌢⌢⌢୨꒰ 𐙚 ꒱୧⌢⌢⌢⌢୨୧ 
+
+i'm hypersexual, also expect me to make s3x jokes
+
+angelkin + dollkin + fictkin! feel free to block if you dont like it!!^_^
+
+I often get overwhelmed and frustrated over small things, mostly if theres newer people im not comfy with!
+
+plz use tonetags w me if we just met!! im really slow, so please be patient w me!:<
+
+i can be really sensitive and emotional at times, especially when im overwhelmed/frustrated. if we just met please be gentle as i can easily get affected!
+plz use tonetags when talking w/ me /nf i dont pick up sarcasm/jokes easily!
 (i also do s3x jokes so plz tell me if youre uncomfy..)
 
 # 〃✦ ┆*In name!*
@@ -33,6 +48,14 @@ plz use tonetags when talking w/ me especially if we just met../nf i dont pick u
 *FICTKIN* .୨ৎ݁݁ ˖ fictional kin!!:D would appreciate if you call me as them<3
 
 *IRL* .୨ৎ݁݁ ˖ my irl skin!:D
+
+# 〃✦ ┆*Special mention!!*
+
+⠀୨୧⌢⌢⌢⌢୨꒰ 𐙚 ꒱୧⌢⌢⌢⌢୨୧ 
+
+lejan, keb, vin, viz, ash, fyodor, laffy, stan, nicole, gustav, mango, pip, and cally!!!
+
+remember, this isnt in order!! i love all my friends, even if they arent on here!!^_^
 
 ![image](https://github.com/user-attachments/assets/493cb7d7-6bf5-458b-832e-d30425c5ac18)![image](https://github.com/user-attachments/assets/4821cf73-ee7f-4efe-9638-6a893b1ea50f)![image](https://github.com/user-attachments/assets/1a366959-7daf-4513-9930-98b21b75784a)![image](https://github.com/user-attachments/assets/57d2ddc2-a84e-4c74-8214-06be838b142f)![image](https://github.com/user-attachments/assets/01b2fcf2-f817-41f1-a4f4-ddd15314b515)![image](https://github.com/user-attachments/assets/6e4946bb-c35b-4c08-bc31-bdb567a07495)![image](https://github.com/user-attachments/assets/f24713c1-fd1c-40e8-bda5-dc9f0cab4747)
 
