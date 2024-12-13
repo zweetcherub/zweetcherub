@@ -49,6 +49,9 @@ plz use tonetags when talking w/ me /nf i dont pick up sarcasm/jokes easily!
 
 *IRL* .୨ৎ݁݁ ˖ my irl skin!:D
 
+*IWC* .୨ৎ݁݁ ˖ int w care please!! i might get overwhelmed or frustrated.
+
+*IWC* .୨ৎ݁݁ ˖ int w EXTRA care! higher chance that ill get overwhelmed, frustrated, and all those shit ...
 # 〃✦ ┆*Special mention!!*
 
 ⠀୨୧⌢⌢⌢⌢୨꒰ 𐙚 ꒱୧⌢⌢⌢⌢୨୧ 
