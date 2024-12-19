@@ -1,4 +1,4 @@
-![9b0e909b-44f9-4c83-b2c1-ebfb34156f67](https://github.com/user-attachments/assets/52503f7a-6986-4371-9229-e10c7e9ee931)
+![Uploading Untitled412_20241220010534.png…]()
 
 
 haiaia im aiden or you can call me will!! adam or angel works too ^_^
