@@ -1,5 +1,4 @@
-![Uploading Untitled412_20241220010534.png…]()
-
+![Untitled412_20241220010534](https://github.com/user-attachments/assets/c6a0c51f-cf0d-413a-9f30-1b8dfc2f31d9)
 
 haiaia im aiden or you can call me will!! adam or angel works too ^_^
 im a fictkin!! doubles plz dni... it makes me really uncomfy sowry....:<
